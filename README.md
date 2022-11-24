@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Yenzty426
+- 👀 I’m interested in ...reading, learning, exercise, food and music 
+- 🌱 I’m currently learning ...everything about soft engineering from scratch
+- 💞️ I’m looking to collaborate with ...anyone new to this and eager to learn
+- 📫 How to reach me ...direct message me 
